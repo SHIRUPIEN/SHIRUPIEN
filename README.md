@@ -1,1 +1,1 @@
-! (Tak berjudul371_20250831195952.png) 
+![Alt text](Tak berjudul371_20250831195952.png)
