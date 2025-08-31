@@ -1,1 +1,1 @@
-![Alt text](Tak berjudul371_20250831195952.png)
+![Alt text](https://i.imghippo.com/files/WjB9027dbE.png)
